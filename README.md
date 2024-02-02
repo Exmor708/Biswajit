@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **biswajitpradhan708@gmail.com**
 
-- 📄 Know about my experiences 😎 **I have previously worked as senior moderator @xda and contributed few apps for open-source community.**
+- 📄 Know about my experiences 😎 **I have previously worked as senior moderator @xda and contributed MODS for open-source community.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
